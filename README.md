@@ -1,0 +1,2 @@
+# crackwarequarexcheat
+CrackWare = Quarex
